@@ -11,7 +11,7 @@
 
 ![Seal](https://files.worldwildlife.org/wwfcmsprod/images/HERO_harbor_seal_on_ice/hero_small/41yzw17euy_Harbor_Seal_on_Ice_close_0357_6_11_07.jpg)
 
-_You wouldn't want this guyt to die would you?_
+_You wouldn't want this guy to die would you?_
 
 **NO**, 
 * You
